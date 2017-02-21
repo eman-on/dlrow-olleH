@@ -6,5 +6,5 @@ but before today I didn't knew how to share my thoughts with others.
 So, from this day, this place will be my "good deeds platform" where my projects could help someone =)
 
 
-Glad to be in your family!
+Glad to be in your family, GitHub!
 No_name
